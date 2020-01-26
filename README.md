@@ -10,6 +10,7 @@ SAVE ME......STEAM
 
 Σε αυτά τα link φαίνεται η έναρξη του έργου (Α' ΦΑΣΗ):
 https://www.youtube.com/watch?v=Lheqkj73LL8 , https://www.youtube.com/watch?v=gm2cgKi-rYA&t=2s , https://www.youtube.com/watch?v=pC3lNr9AWR4 
+
 Οι μαθητές θα δούνε και κάποια βίντεο (6ο ΜΗΝΥΜΑ που αφήνει ο Ηλίανθος - ΗΛΙΟΣ) για την κλιματική αλλαγή και τις ανανεώσιμες πηγές ενέργειας. https://www.youtube.com/watch?v=1sI_ot8qoXE ,https://www.youtube.com/watch?v=saeO570eot4&t=41s .
 
 Β' ΦΑΣΗ (2 ΜΕΡΕΣ):
