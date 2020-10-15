@@ -180,6 +180,6 @@ https://www.youtube.com/watch?v=1MGu3rpBuzk&t=24s&ab_channel=%CE%A7%CF%81%CE%AE%
 -Ανακυκλώσιμα υλικά (κούτες, χαρτόνια, κόλλες, πλαστικά, τενεκεδάκια για την κατασκευή των Ηλίανθων και του εργοστάσιου ζωοτροφών), χάρτινη ύλη (2€)
 ΣΥΝΟΛΙΚΟ ΠΟΣΟ: 63,50€
 
-Παρουσίαση του progect και στην παρακάτω σελίδα του ιστολογίου DREAMLAND....
+Παρουσίαση του project και στην παρακάτω σελίδα του ιστολογίου DREAMLAND....
 https://blogs.sch.gr/evkatsali/2020/10/15/save-me-steam/?preview_id=77&preview_nonce=e24bd9e220&post_format=standard&_thumbnail_id=-1&preview=true
 
