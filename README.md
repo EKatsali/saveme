@@ -161,7 +161,7 @@ https://www.youtube.com/watch?v=Dgfoo-jPDeg&feature=emb_logo&ab_channel=%CE%95%C
 https://www.youtube.com/watch?v=KUGBPxxlbfY&t=1s&ab_channel=%CE%95%CE%A5%CE%93%CE%95%CE%9D%CE%99%CE%91%CE%9A%CE%91%CE%A4%CE%A3%CE%91%CE%9B%CE%97
 
 
-ΤΕΛΙΚΗ ΠΑΡΟΥΣΙΑΣΗ του progect από τους ΥΠΕΡΙΩΝΕΣ:
+ΤΕΛΙΚΗ ΠΑΡΟΥΣΙΑΣΗ του project από τους ΥΠΕΡΙΩΝΕΣ:
 https://www.youtube.com/watch?v=W50orUTPn1w&t=6s&ab_channel=%CE%95%CE%A5%CE%93%CE%95%CE%9D%CE%99%CE%91%CE%9A%CE%91%CE%A4%CE%A3%CE%91%CE%9B%CE%97
 
 
